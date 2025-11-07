@@ -3,9 +3,9 @@
 ![How to Train Your Dragon](https://m.media-amazon.com/images/S/pv-target-images/81f8e9bb75e0488ae43bfb4dc0b086c457a77cb51c5cc8411049a749d7fff407.jpg)
 
 **Genre:** Fantasy, Action-Adventure, Family/Children Film, Animation  
-**Produced by:** DreamWorks Animation
-**Directed by:** Chris Sanders & Dean DeBlois
-**Written by:** Sanders, DeBlois & Will Davies
+**Produced by:** DreamWorks Animation  
+**Directed by:** Chris Sanders & Dean DeBlois  
+**Written by:** Sanders, DeBlois & Will Davies  
 
 ---
 
