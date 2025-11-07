@@ -21,7 +21,7 @@
 |------------|--------|
 | Hiccup | Jay Baruchel |
 | Astrid | America Ferrera |
-| Mike Wheeler | King Stoick the Vast |
+| King Stoick the Vast | Mike Wheeler |
 | Valka | Cate Blanchett |
 
 > *“This is Berk. We've got ice and snow... and we've also got dragons. We train them, learn from them, protect them, and they protect us.” – Hiccup*
