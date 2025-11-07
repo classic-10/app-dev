@@ -1,6 +1,6 @@
 ## My Favorite Animated Trilogy Movie: How to Train Your Dragon
 
-![How to Train Your Dragon]([https://upload.wikimedia.org/wikipedia/en/f/f7/Stranger_Things_season_4.jpg](https://m.media-amazon.com/images/S/pv-target-images/5e17a19231619fa28c68b0aea25d167c5c85c703eb6fef1d3beb0f926423ce40.jpg))
+![How to Train Your Dragon](https://m.media-amazon.com/images/S/pv-target-images/81f8e9bb75e0488ae43bfb4dc0b086c457a77cb51c5cc8411049a749d7fff407.jpg)
 
 **Genre:** Fantasy, Action-Adventure, Family/Children Film, Animation  
 **Produced by:** DreamWorks Animation
